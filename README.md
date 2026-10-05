@@ -1,1 +1,1 @@
-# IdleRunner legal pages
+# Scrap Parade legal pages
